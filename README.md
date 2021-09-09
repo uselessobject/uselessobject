@@ -1,1 +1,1 @@
-Killing myself
+killing myself.
